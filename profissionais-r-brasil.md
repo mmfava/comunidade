@@ -1,6 +1,6 @@
 ### Interesses profissionais de membros do grupo R do Telegram 
 
-Marília Melo
+[Marília Melo Favalesso](linktr.ee/mmfava) - Interessada em ecoepidemiologia espacial, análise de dados biológicos e visualização de dados.
 
 Leonardo Nascimento 
 
